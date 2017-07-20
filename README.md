@@ -1,2 +1,3 @@
-There are times when truth is stranger than fiction and lunch time is one
-of them.
+"You know, of course, that the Tasmanians, who never committed adultery, are
+now extinct."
+- M. Somerset Maugham
